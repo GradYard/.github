@@ -1,6 +1,3 @@
 ## Hi there 👋
 
-🧙 Remember, you can do mighty things.
-
-Best,
-Suraj
+🧙 Remember, you can do mighty things. - Suraj 
